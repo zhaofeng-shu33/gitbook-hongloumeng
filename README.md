@@ -9,13 +9,6 @@
 
 ![](https://img3.doubanio.com/lpic/s2212160.jpg)
 
-----
-
-- [红楼梦程高本(程伟元、高鹗续), 一百二十回](catalogue_cgb.md)
-- [豆瓣链接](https://book.douban.com/subject/1007305/)
-
-![](https://img1.doubanio.com/lpic/s1070959.jpg)
-
 
 <br>
 <hr>
